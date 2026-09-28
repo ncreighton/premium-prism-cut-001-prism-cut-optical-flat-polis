@@ -1,0 +1,2 @@
+# premium-prism-cut-001-prism-cut-optical-flat-polis
+Tired of losing track of custom prism orders, polishing stages, and material specs? The Prism Cut &amp; Optical Flat Polish Craft Hub transforms your workshop chaos into a crystal-clear, repeatable workflow.  This Notion template is purpose-built for craftspeople who cut and polish optical flats and prisms. It eliminates the guesswork from job tracking
